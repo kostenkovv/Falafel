@@ -15,17 +15,27 @@ Traditional falafel is made from ground chickpeas or fava beans, herbs and spice
 ![Branching](Falafel-12.jpg "Several falafel balls on a plate garnished with parsley and tahini sauce")
 
 **FALAFEL INGREDIENTS**
+
 Falafel are naturally gluten-free and made from a few simple ingredients. Here’s what’s in my recipe:
 
 **Chickpeas** (Garbanzo Beans): Only use dried and soaked chickpeas, not canned chickpeas in this recipe. Canned chickpeas will be too soft and wet and your falafel will not form properly.
+
 **Onion:** I use yellow onion for a slightly stronger flavor, but you could use white or red onion as well.
+
 **Parsley and Cilantro:** These two delicious herbs inject heaps of flavor into your falafel and turn the inside a beautiful, vibrant green.
+
 **Garlic:** Use fresh garlic cloves rather than garlic powder for the most robust flavor.
+
 **Green Chile Pepper** (Serrano Pepper): A small pepper adds a kick of flavor and spice without over-powering the falafel. You can adjust this to more or less, but don’t omit it without trying it first – trust me.
-Cumin, Cardamom, Salt and Black Pepper: These aromatic spices are used often in Middle Eastern cooking and have an earthy, spicy, assertive flavor you’ll love.
+
+**Cumin, Cardamom, Salt and Black Pepper:** These aromatic spices are used often in Middle Eastern cooking and have an earthy, spicy, assertive flavor you’ll love.
+
 **Chickpea Flour:** This helps to bind the mixture together and retain the shape while frying. I prefer chickpea flour, but you could also use a gluten-free flour blend.
+
 **Baking Soda:** A key ingredient for helping to provide the fluffy inside texture of the falafel.
+
 **Oil for Frying:** I use avocado oil as it’s high-heat stable and my preferred cooking oil. But you could use vegetable oil as well.
+
 *Note: While this recipe is gluten-free and all falafel I’ve had overseas have been made with gluten-free ingredients, always double check the flour used and if there’s cross-contamination with the oil. 
 
 **How to make falafel in a food processor.**
