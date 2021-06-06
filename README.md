@@ -10,6 +10,7 @@ Falafel are delicious balls of chickpea and herb goodness that you find in Middl
 But after eating my way through Tel Aviv last year, I realized what makes the best falafel. And here’s the answer: tons of herbs (double the normal amount) and a small amount of green pepper. This makes for an addictive flavor that’s “a little something extra” but not spicy. Just insanely delicious.
 
 **WHAT IS FALAFEL?**
+
 Traditional falafel is made from ground chickpeas or fava beans, herbs and spices. The mixture is then formed into balls or patties and deep fried for a texture that’s crispy on the outside and soft on the inside, sort of like a fritter. It’s a classic Middle Eastern and Mediterranean recipe that’s enjoyed as street food and often served up as part of mezze (a group of small meals).
 
 ![Branching](Falafel-12.jpg "Several falafel balls on a plate garnished with parsley and tahini sauce")
