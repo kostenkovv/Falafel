@@ -40,9 +40,9 @@ Falafel are naturally gluten-free and made from a few simple ingredients. Hereâ€
 
 **How to make falafel in a food processor.**
 
-![Branching](how-to-make-falafel.jpg "Several falafel balls on a plate garnished with parsley and tahini sauce")
+![Branching](how-to-make-falafel.jpg "Scooped falafel mixture ready to be cooked")
 
-Scooped falafel mixture ready to be cooked.
+
 
 **HOW TO MAKE THE BEST FALAFEL (AT HOME!)**
 
