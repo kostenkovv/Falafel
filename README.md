@@ -3,7 +3,7 @@ Falafel are delicious balls of chickpea and herb goodness that you find in Middl
 
 ![Branching](Falafel-11.jpg "Most Delicious Falafel")
 
-A plate of falafel drizzled with tahini sauce.
+**A plate of falafel drizzled with tahini sauce.**
 
 Are you ready for the best falafel you’ve ever tasted? I’ve had my fair share of falafel on travels through Egypt, Israel and Jordan. I’ve had them in restaurants and on street corners (about as authentic as they come). I’ve had them stuffed in gluten-free pita and on salads. And I’ve had them with slight variations and tweaks, though the recipe itself is fairly simple.
 
