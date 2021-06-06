@@ -1,5 +1,4 @@
-# Most Delicious Falafel
-Falafel are delicious balls of chickpea and herb goodness that you find in Middle Eastern cooking. Naturally vegan and vegetarian, falafel are great in wraps, pitas, sandwiches and salads. Today, I’ll share how to make both fried falafel and baked falafel. You choose your favorite!
+# Falafel are delicious balls of chickpea and herb goodness that you find in Middle Eastern cooking. Naturally vegan and vegetarian, falafel are great in wraps, pitas, sandwiches and salads. Today, I’ll share how to make both fried falafel and baked falafel. You choose your favorite!
 
 ![Branching](Falafel-11.jpg "A plate of falafel drizzled with tahini sauce. Most Delicious Falafel")
 
