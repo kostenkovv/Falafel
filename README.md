@@ -14,7 +14,7 @@ Traditional falafel is made from ground chickpeas or fava beans, herbs and spice
 
 Several falafel balls on a plate garnished with parsley and tahini sauce.
 
-FALAFEL INGREDIENTS
+**FALAFEL INGREDIENTS**
 Falafel are naturally gluten-free and made from a few simple ingredients. Here’s what’s in my recipe:
 
 Chickpeas (Garbanzo Beans): Only use dried and soaked chickpeas, not canned chickpeas in this recipe. Canned chickpeas will be too soft and wet and your falafel will not form properly.
@@ -28,20 +28,24 @@ Baking Soda: A key ingredient for helping to provide the fluffy inside texture o
 Oil for Frying: I use avocado oil as it’s high-heat stable and my preferred cooking oil. But you could use vegetable oil as well.
 *Note: While this recipe is gluten-free and all falafel I’ve had overseas have been made with gluten-free ingredients, always double check the flour used and if there’s cross-contamination with the oil. 
 
-How to make falafel in a food processor.
+**How to make falafel in a food processor.**
 
 Scooped falafel mixture ready to be cooked.
-HOW TO MAKE THE BEST FALAFEL (AT HOME!)
+
+**HOW TO MAKE THE BEST FALAFEL (AT HOME!)**
+
 Are you ready to make homemade falafel? Great! Let’s break this into two parts – making the dough and then cooking (so you can choose your preferred cooking method).
 
-HOW TO MAKE THE FALAFEL DOUGH MIXTURE
+**HOW TO MAKE THE FALAFEL DOUGH MIXTURE**
 Soak your dried chickpeas. Overnight or for at least 8-12 hours. Note that the chickpeas will triple in size, so cover them with plenty of water. Then drain and rinse them.
 Add all the ingredients to a food processor. Add the chickpeas, onion, parsley, cilantro, garlic, green pepper and spices to a food processor. I recommend roughly chopping up the onion, herbs and pepper before adding. Pulse the food processor but do not blend completely. The final mixture should resemble coarse sand.
 Transfer the mixture to a bowl. Then add the chickpea flour and baking soda, stir it together until it’s fully combined and cover with plastic wrap or a lid.
 Place the bowl in the fridge. Chill the falafel mixture for 30 minutes to 1 hour.
 Shape your falafel. You can do this by hand, with a cookie scoop (which is what I use) or a falafel scoop. Decide if you’d like round balls or flatter patty shapes. The flatter shapes are better if you plan to pan fry or bake. Any shape can be used for deep frying. Form all your falafel and place on a plate.
 A plate of falafel with one cut open in half.
-HOW TO COOK FALAFEL – 3 DIFFERENT WAYS
+
+**HOW TO COOK FALAFEL – 3 DIFFERENT WAYS**
+
 How to Deep Fry Falafel: Heat about 3 inches of oil (I use avocado oil) in a pot on medium heat to 350F. Once the oil has reached temperature, gently drop 6-8 balls into the oil at a time. Let them cook for 1-2 minutes or until golden on the outside. Use a skimmer to the remove the falafel to a paper towel-lined plate.
 
 How to Pan Fry Falafel: Heat a few tablespoons of oil in a pan (I prefer cast iron) on medium-high heat. Gently place the falafel in the pan and cook each side for 2-3 minutes or until golden, then transfer to a paper towel-lined plate.
@@ -53,5 +57,7 @@ You’ll notice in the photo below that no matter which method you choose, they 
 Want to know the method I use most often? If it’s just for me, I’ll pan fry. It uses less oil but is still super crispy on the outside. If it’s for a party or guests, I love the balls. They’re the perfect finger food!
 
 How to cook falafel three different ways, deep fried, pan fried and baked.
-HOW TO SERVE FALAFEL
+
+**HOW TO SERVE FALAFEL**
+
 Falafel are best served immediately after cooking, so they’re warm and crispy. They’re delicious served in gluten-free pita, wrapped in lettuce or collard greens or topped on a simple green salad (my preferred method). But however you serve them, don’t forget to drizzle them with Tahini Sauce. It’s a creamy and flavorful requirement!
