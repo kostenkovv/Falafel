@@ -69,7 +69,6 @@ You’ll notice in the photo below that no matter which method you choose, they 
 
 Want to know the method I use most often? If it’s just for me, I’ll pan fry. It uses less oil but is still super crispy on the outside. If it’s for a party or guests, I love the balls. They’re the perfect finger food!
 
-How to cook falafel three different ways, deep fried, pan fried and baked.
 
 **HOW TO SERVE FALAFEL**
 
