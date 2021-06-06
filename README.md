@@ -5,14 +5,14 @@ Falafel are delicious balls of chickpea and herb goodness that you find in Middl
 
 **A plate of falafel drizzled with tahini sauce.**
 
-Are you ready for the best falafel you’ve ever tasted? I’ve had my fair share of falafel on travels through Egypt, Israel and Jordan. I’ve had them in restaurants and on street corners (about as authentic as they come). I’ve had them stuffed in gluten-free pita and on salads. And I’ve had them with slight variations and tweaks, though the recipe itself is fairly simple.
+**Are you ready for the best falafel you’ve ever tasted?** I’ve had my fair share of falafel on travels through Egypt, Israel and Jordan. I’ve had them in restaurants and on street corners (about as authentic as they come). I’ve had them stuffed in gluten-free pita and on salads. And I’ve had them with slight variations and tweaks, though the recipe itself is fairly simple.
 
 But after eating my way through Tel Aviv last year, I realized what makes the best falafel. And here’s the answer: tons of herbs (double the normal amount) and a small amount of green pepper. This makes for an addictive flavor that’s “a little something extra” but not spicy. Just insanely delicious.
 
-WHAT IS FALAFEL?
+**WHAT IS FALAFEL?**
 Traditional falafel is made from ground chickpeas or fava beans, herbs and spices. The mixture is then formed into balls or patties and deep fried for a texture that’s crispy on the outside and soft on the inside, sort of like a fritter. It’s a classic Middle Eastern and Mediterranean recipe that’s enjoyed as street food and often served up as part of mezze (a group of small meals).
 
-Several falafel balls on a plate garnished with parsley and tahini sauce.
+![Branching](Falafel-12.jpg "Several falafel balls on a plate garnished with parsley and tahini sauce")
 
 **FALAFEL INGREDIENTS**
 Falafel are naturally gluten-free and made from a few simple ingredients. Here’s what’s in my recipe:
@@ -29,6 +29,8 @@ Cumin, Cardamom, Salt and Black Pepper: These aromatic spices are used often in 
 *Note: While this recipe is gluten-free and all falafel I’ve had overseas have been made with gluten-free ingredients, always double check the flour used and if there’s cross-contamination with the oil. 
 
 **How to make falafel in a food processor.**
+
+![Branching](how-to-make-falafel.jpg "Several falafel balls on a plate garnished with parsley and tahini sauce")
 
 Scooped falafel mixture ready to be cooked.
 
