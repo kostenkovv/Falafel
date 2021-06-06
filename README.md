@@ -49,6 +49,7 @@ Scooped falafel mixture ready to be cooked.
 Are you ready to make homemade falafel? Great! Let’s break this into two parts – making the dough and then cooking (so you can choose your preferred cooking method).
 
 **HOW TO MAKE THE FALAFEL DOUGH MIXTURE**
+
 Soak your dried chickpeas. Overnight or for at least 8-12 hours. Note that the chickpeas will triple in size, so cover them with plenty of water. Then drain and rinse them.
 Add all the ingredients to a food processor. Add the chickpeas, onion, parsley, cilantro, garlic, green pepper and spices to a food processor. I recommend roughly chopping up the onion, herbs and pepper before adding. Pulse the food processor but do not blend completely. The final mixture should resemble coarse sand.
 Transfer the mixture to a bowl. Then add the chickpea flour and baking soda, stir it together until it’s fully combined and cover with plastic wrap or a lid.
@@ -58,11 +59,11 @@ A plate of falafel with one cut open in half.
 
 **HOW TO COOK FALAFEL – 3 DIFFERENT WAYS**
 
-How to Deep Fry Falafel: Heat about 3 inches of oil (I use avocado oil) in a pot on medium heat to 350F. Once the oil has reached temperature, gently drop 6-8 balls into the oil at a time. Let them cook for 1-2 minutes or until golden on the outside. Use a skimmer to the remove the falafel to a paper towel-lined plate.
+**How to Deep Fry Falafel:** Heat about 3 inches of oil (I use avocado oil) in a pot on medium heat to 350F. Once the oil has reached temperature, gently drop 6-8 balls into the oil at a time. Let them cook for 1-2 minutes or until golden on the outside. Use a skimmer to the remove the falafel to a paper towel-lined plate.
 
-How to Pan Fry Falafel: Heat a few tablespoons of oil in a pan (I prefer cast iron) on medium-high heat. Gently place the falafel in the pan and cook each side for 2-3 minutes or until golden, then transfer to a paper towel-lined plate.
+**How to Pan Fry Falafel:** Heat a few tablespoons of oil in a pan (I prefer cast iron) on medium-high heat. Gently place the falafel in the pan and cook each side for 2-3 minutes or until golden, then transfer to a paper towel-lined plate.
 
-How to Bake Falafel: Pre-heat your oven to 425F. Lightly spray or brush a baking sheet with oil. Place the falafel on the baking sheet, lightly spray or brush the top side with oil and bake for 25-30 minutes, flipping halfway through. You can also bake them on parchment paper or a silicone mat without any oil. They’ll just be slightly less crispy and golden.
+**How to Bake Falafel:** Pre-heat your oven to 425F. Lightly spray or brush a baking sheet with oil. Place the falafel on the baking sheet, lightly spray or brush the top side with oil and bake for 25-30 minutes, flipping halfway through. You can also bake them on parchment paper or a silicone mat without any oil. They’ll just be slightly less crispy and golden.
 
 You’ll notice in the photo below that no matter which method you choose, they look pretty similar once cooked. A perfectly golden outside and bright green inside!
 
